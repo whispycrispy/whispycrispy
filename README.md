@@ -15,11 +15,25 @@
   
 <p align="center">
   <img src=https://i.pinimg.com/1200x/41/97/f7/4197f7d555182617e7c7b882937e0ab1.jpg>
+  <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+    
+ <h3 align="center">⋆｡°✩Interactions⋆｡°✩
 
-  
+☆ I will not talk much (I'm mostly mute to new people )
+
+☆If I look lonely you are always welcome to chat with me!! you may talk i just maybe quiet
+
+☆You are free to talk to me about interests! If I don't know it I will be curious or will let you know!
+
+☆ please do not send a random friend request! pls ask or I will ask
+
+☆ yumeshippers feel free to sit/cuddle w me if i'm using a skin of your f/o just please ask as i maybe wanting to be alone or are with friends 
+
+☆Rate my ponies! I’m honestly curious what ppl think of them!!
+   
   <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   
-   <h3 align="center"> Strict DNI breaking any of these will be blocked with no warning
+   <h3 align="center"> ⋆｡°✩Strict DNI ⋆｡°✩
 
 ☆Ped0ph1l1a, 1ncest, Z00ph1lli1a, Trump Supporters (politics) will be instantly blocked
 
