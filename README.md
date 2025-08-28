@@ -27,7 +27,7 @@
 
 ☆ please do not send a random friend request! pls ask or I will ask
 
-☆ yumeshippers feel free to sit/cuddle w me if i'm using a skin of your f/o just please ask as i maybe wanting to be alone or are with friends 
+☆Selfship or oc x cannon is fine feel free  to sit/cuddle with me  if I'm a of your f/o just please ask as I maybe wanting to be alone or am with friends 
 
 ☆Rate my ponies! I’m honestly curious what ppl think of them!!
    
