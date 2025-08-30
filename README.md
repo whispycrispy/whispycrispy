@@ -1,6 +1,8 @@
 <h3 align="center"> 　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔            . ✦　.　　. 　 ˚　 　✦
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　.　　. 　 ˚　.　　   ˳·˖✶   ✦　　
-<h3 align="center"> ★Selective mute
+<h3 align="center"> 
+  ★Selective mute
+
 
 ☆Nickname₊ ⊹ Whisp
 
