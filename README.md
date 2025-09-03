@@ -8,7 +8,7 @@
 
 ☆Pronouns₊ ⊹ any
 
-☆age₊ ⊹26
+☆age₊ ⊹27
 
 ☆[Galaxy system](https://pluralkit.xyz/s/ucahsy)☆
 ☆[patreon](https://www.patreon.com/c/whispycrispy)☆
