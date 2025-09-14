@@ -3,7 +3,6 @@
 <h3 align="center"> 
   ★Selective mute
 
-
 ☆Nickname₊ ⊹ Whisp
 
 ☆Pronouns₊ ⊹ any
@@ -16,7 +15,7 @@
 <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   
 <p align="center">
-  <img src=https://i.pinimg.com/1200x/41/97/f7/4197f7d555182617e7c7b882937e0ab1.jpg>
+  <img src=https://images.hdqwalls.com/download/leon-kennedy-resident-evil-game-te-3840x2160.jpg>
   <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
     
  <h3 align="center">⋆｡°✩Interactions⋆｡°✩
@@ -65,13 +64,13 @@
  <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   
  <h5 align="center">
-  <img src=https://pbs.twimg.com/media/GzHP4g4XUAA4Xrd?format=jpg&name=900x900 >
+  <img src=https://media1.tenor.com/m/7KCicCWYXWwAAAAd/treat-leon.gif >
    
  <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   
  <h3 align="center"> Hay yah Dbd players!
    
- <h3 align="center"> I'm a Xenomorph as well as wesker killer main ! While for survivor I'm a Yui Kimura or ellen ripley main
+ <h3 align="center"> I'm a Xenomorph as well as wesker killer main ! While for survivor I'm a Yui Kimura or Leon kennedy/Rebecca Chambers main
 
 <h3 align="center"> ⋆｡°✩fav things⋆｡°✩
 
@@ -89,19 +88,24 @@
 ✩cyberpunk
 
 ✩ scifi movies ^^
+    
+✩ resident evil 
     <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+
+
     
    <img src=https://camo.githubusercontent.com/6d675ede520204f592aa66927e807f011c6c2af43e21013c86710647d4ce59f3/68747470733a2f2f707265766965772e726564642e69742f7237756a6f31643637306a66312e6a7065673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d33363733383164306561356232346536626662623231336535613330376633616630663335663037>
- <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+
+   
+<h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
    <h5 align="center">
-<img src=https://64.media.tumblr.com/ccf727379da594a7ee2bf33751f0c426/tumblr_oud3yuOuqa1qbxh0uo1_500.gif>
+<img src=https://media1.tenor.com/m/3lTVzGtF6VkAAAAC/umbrella-corporation.gif>
        <h5 align="center">
          
-
-
+      
 
   
-  <img src=https://i.pinimg.com/originals/2d/1c/37/2d1c370d6a87403cdad869b136054a1e.gif>
+  <img src=https://media1.tenor.com/m/IgxBGbSz2k4AAAAd/leon-resident-evil-4.gif>
   
 <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 <h3 align="center"> ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔            . ✦　.　　. 　 ˚　 　✦
