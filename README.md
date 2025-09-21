@@ -110,7 +110,7 @@
   
   <img src=https://media1.tenor.com/m/IgxBGbSz2k4AAAAd/leon-resident-evil-4.gif>
   
-  <img src=https://64.media.tumblr.com/5cb937d837c89ee58b7e72ee63a45e17/49833ea7a3e178f3-ed/s1280x1920/2ebd039defc98fdc66df45643e1ff0b609d18768.gifv>
+  <img src=https://64.media.tumblr.com/cc3713193d1d180d060c70ff3ac314b1/4c03cf772ce7f671-74/s2048x3072/9d5a65d1dfef1c5794acb51c60e3db28d6c82edb.pnj>
 
 <!--
 **whispycrispy/whispycrispy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
