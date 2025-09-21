@@ -1,5 +1,5 @@
 <p align="center">
-  <img src=https://64.media.tumblr.com/2e933a69c586158aec09256fa9259ae2/4c03cf772ce7f671-11/s2048x3072/067f29c1ba761d313ec0abca6db06cf9f54d485d.pnj>
+  <img src=https://64.media.tumblr.com/fc6b5291f410a7a57c767fc0da9b6263/cd75fb9d678138f9-a8/s2048x3072/784bf38b04080f2d668ae778b65d04d6c716ac4e.pnj>
 
 <h3 align="center"> 　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔            . ✦　.　　. 　 ˚　 　✦
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　.　　. 　 ˚　.　　   ˳·˖✶   ✦　　
@@ -110,7 +110,7 @@
   
   <img src=https://media1.tenor.com/m/IgxBGbSz2k4AAAAd/leon-resident-evil-4.gif>
   
-  <img src=https://64.media.tumblr.com/cc3713193d1d180d060c70ff3ac314b1/4c03cf772ce7f671-74/s2048x3072/9d5a65d1dfef1c5794acb51c60e3db28d6c82edb.pnj>
+  <img src=https://64.media.tumblr.com/b1ae69d5a149bc2e8709be2d76669790/cd75fb9d678138f9-79/s2048x3072/c9074e19e64577750580614b9c38395cdb85d744.pnj>
 
 <!--
 **whispycrispy/whispycrispy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
