@@ -1,3 +1,6 @@
+<p align="center">
+  <img src=https://64.media.tumblr.com/2e933a69c586158aec09256fa9259ae2/4c03cf772ce7f671-11/s2048x3072/067f29c1ba761d313ec0abca6db06cf9f54d485d.pnj>
+
 <h3 align="center"> 　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔            . ✦　.　　. 　 ˚　 　✦
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　.　　. 　 ˚　.　　   ˳·˖✶   ✦　　
 <h3 align="center"> 
@@ -12,12 +15,12 @@
 ☆[Galaxy system](https://pluralkit.xyz/s/ucahsy)☆
 ☆[patreon](https://www.patreon.com/c/whispycrispy)☆
 ☆[Strawpage](https://whisp.straw.page)☆
-<h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+<p align="center">
+  <img src=https://64.media.tumblr.com/c4153c321a0f8afe0473bba118c568e8/49833ea7a3e178f3-5a/s1280x1920/b0861bf5a0cabd65c91272cb63b908e532540dc9.gifv>
   
 <p align="center">
   <img src=https://images.hdqwalls.com/download/leon-kennedy-resident-evil-game-te-3840x2160.jpg>
-  <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
-    
+  <img src=https://64.media.tumblr.com/c4153c321a0f8afe0473bba118c568e8/49833ea7a3e178f3-5a/s1280x1920/b0861bf5a0cabd65c91272cb63b908e532540dc9.gifv>
  <h3 align="center">⋆｡°✩Interactions⋆｡°✩
 
 ☆ I will not talk much (I'm mostly mute to new people )
@@ -32,7 +35,7 @@
 
 ☆Rate my ponies! I’m honestly curious what ppl think of them!!
    
-  <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+   <img src=https://64.media.tumblr.com/c4153c321a0f8afe0473bba118c568e8/49833ea7a3e178f3-5a/s1280x1920/b0861bf5a0cabd65c91272cb63b908e532540dc9.gifv>
   
    <h3 align="center"> ⋆｡°✩Strict DNI ⋆｡°✩
 
@@ -61,12 +64,12 @@
 ☆ if say leave me be then leave me be
 
 ☆ fake systems and Endogenic systems
- <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+  <img src=https://64.media.tumblr.com/c4153c321a0f8afe0473bba118c568e8/49833ea7a3e178f3-5a/s1280x1920/b0861bf5a0cabd65c91272cb63b908e532540dc9.gifv>
   
  <h5 align="center">
   <img src=https://media1.tenor.com/m/7KCicCWYXWwAAAAd/treat-leon.gif >
    
- <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+  <img src=https://64.media.tumblr.com/c4153c321a0f8afe0473bba118c568e8/49833ea7a3e178f3-5a/s1280x1920/b0861bf5a0cabd65c91272cb63b908e532540dc9.gifv>
   
  <h3 align="center"> Hay yah Dbd players!
    
@@ -90,26 +93,24 @@
 ✩ scifi movies ^^
     
 ✩ resident evil 
-    <h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+  <img src=https://64.media.tumblr.com/c4153c321a0f8afe0473bba118c568e8/49833ea7a3e178f3-5a/s1280x1920/b0861bf5a0cabd65c91272cb63b908e532540dc9.gifv>
 
 
     
    <img src=https://camo.githubusercontent.com/6d675ede520204f592aa66927e807f011c6c2af43e21013c86710647d4ce59f3/68747470733a2f2f707265766965772e726564642e69742f7237756a6f31643637306a66312e6a7065673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d33363733383164306561356232346536626662623231336535613330376633616630663335663037>
 
    
-<h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+  <img src=https://64.media.tumblr.com/c4153c321a0f8afe0473bba118c568e8/49833ea7a3e178f3-5a/s1280x1920/b0861bf5a0cabd65c91272cb63b908e532540dc9.gifv>
    <h5 align="center">
+  
 <img src=https://media1.tenor.com/m/3lTVzGtF6VkAAAAC/umbrella-corporation.gif>
        <h5 align="center">
          
-      
 
   
   <img src=https://media1.tenor.com/m/IgxBGbSz2k4AAAAd/leon-resident-evil-4.gif>
   
-<h3 align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
-<h3 align="center"> ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔            . ✦　.　　. 　 ˚　 　✦
-　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　.　　. 　 ˚　.　　   ˳·˖✶   ✦　　
+  <img src=https://64.media.tumblr.com/5cb937d837c89ee58b7e72ee63a45e17/49833ea7a3e178f3-ed/s1280x1920/2ebd039defc98fdc66df45643e1ff0b609d18768.gifv>
 
 <!--
 **whispycrispy/whispycrispy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
