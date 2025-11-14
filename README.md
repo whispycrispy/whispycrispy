@@ -17,7 +17,8 @@
  <h3 align="center"> ─ ⊹ ⊱ ☆ ⊰ ⊹ ─
   
 <p align="center">
-  <img src=https://images.hdqwalls.com/download/leon-kennedy-resident-evil-game-te-3840x2160.jpg>
+  <img src="https://github.com/user-attachments/assets/53f086c0-877d-44e1-b952-f6dc1d7102d9" />
+>
  <h3 align="center"> 　　─ ⊹ ⊱ ☆ ⊰ ⊹ ─　
  <h3 align="center">⋆｡°✩Interactions⋆｡°✩
 
@@ -66,7 +67,7 @@
  
   
  <h5 align="center">
-  <img src=https://media1.tenor.com/m/7KCicCWYXWwAAAAd/treat-leon.gif >
+  <img src=https://media1.tenor.com/m/RFhfK-s8wswAAAAC/dispatch-sonar.gif>
    
  <h3 align="center"> 　　─ ⊹ ⊱ ☆ ⊰ ⊹ ─
  <h3 align="center"> Hay yah Dbd players!
@@ -98,18 +99,18 @@
     
     
   <h3 align="center">
-   <img src=https://camo.githubusercontent.com/6d675ede520204f592aa66927e807f011c6c2af43e21013c86710647d4ce59f3/68747470733a2f2f707265766965772e726564642e69742f7237756a6f31643637306a66312e6a7065673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d33363733383164306561356232346536626662623231336535613330376633616630663335663037>
+   <img src=https://camo.githubusercontent.com/600cab64e513e49ed3c68935d9fad6a8921a64930faefc8aee18903acdf4cf9c/68747470733a2f2f707265766965772e726564642e69742f7237756a6f31643637306a66312e6a7065673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d33363733383164306561356232346536626662623231336535613330376633616630663335663037>]
  <h3 align="center"> ─ ⊹ ⊱ ☆ ⊰ ⊹ ─
 
 
 
  <h5 align="center">
-<img src=https://media1.tenor.com/m/3lTVzGtF6VkAAAAC/umbrella-corporation.gif>
+<img src=https://media1.tenor.com/m/hid75epWX9UAAAAC/sonar-sonar-dispatch.gif>
     <h5 align="center">   
          
 
   
-  <img src=https://media1.tenor.com/m/IgxBGbSz2k4AAAAd/leon-resident-evil-4.gif>
+  <img src=https://media1.tenor.com/m/spYT29Oej54AAAAd/invisigal-dispatch.gif>
   
  <h3 align="center"> 　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔            . ✦　.　　. 　 ˚　 　✦
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　.　　. 　 ˚　.　　   ˳·˖✶   ✦　　
