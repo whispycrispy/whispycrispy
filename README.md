@@ -17,8 +17,7 @@
  <h3 align="center"> ─ ⊹ ⊱ ☆ ⊰ ⊹ ─
   
 <p align="center">
-  <img src=https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/957cd5ea-23f4-403b-9cf3-7ff9299a3f21/dl0wcba-bf79083d-d538-4513-8546-14d659d0a7c3.jpg/v1/fill/w_1280,h_720,q_75,strp/untitled_by_lovestarscream_dl0wcba-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NzIwIiwicGF0aCI6Ii9mLzk1N2NkNWVhLTIzZjQtNDAzYi05Y2YzLTdmZjkyOTlhM2YyMS9kbDB3Y2JhLWJmNzkwODNkLWQ1MzgtNDUxMy04NTQ2LTE0ZDY1OWQwYTdjMy5qcGciLCJ3aWR0aCI6Ijw9MTI4MCJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.1xwjIoNrcqKrf0bvXCfclPOdjudcWiGEdo_QSxoaN7M>
->
+  <img src=https://media1.tenor.com/m/w5Q7kswTWMEAAAAC/infinite-the-jackal-sonic-forces.gif>
  <h3 align="center"> 　　─ ⊹ ⊱ ☆ ⊰ ⊹ ─　
  <h3 align="center">⋆｡°✩Interactions⋆｡°✩
 
@@ -35,7 +34,11 @@
 ☆Rate my ponies! I’m honestly curious what ppl think of them!!
    
   <h3 align="center"> 　─ ⊹ ⊱ ☆ ⊰ ⊹ ─
-  
+
+   <h3 align="center"> 　
+     <img src=https://media1.tenor.com/m/rk8CU0iJjZEAAAAC/infinite-the-jackal-sonic-forces.gif>
+    
+ <h3 align="center"> 　　─ ⊹ ⊱ ☆ ⊰ ⊹ ─　
    <h3 align="center"> ⋆｡°✩Strict DNI ⋆｡°✩
 
 ☆Ped0ph1l1a, 1ncest, Z00ph1lli1a, Trump Supporters (politics) will be instantly blocked
@@ -67,7 +70,7 @@
  
   
  <h5 align="center">
-  <img src=https://media1.tenor.com/m/4S4LbDCJNTkAAAAd/dragon-age-dragon-age-the-veilguard.gif>
+  <img src=https://media1.tenor.com/m/1GVGvkYzUygAAAAd/infinite-the-jackal-sonic-forces.gif>
    
  <h3 align="center"> 　　─ ⊹ ⊱ ☆ ⊰ ⊹ ─
  <h3 align="center"> Hay yah Dbd players!
@@ -106,7 +109,7 @@
 
 
  <h5 align="center">
-<img src=https://64.media.tumblr.com/bb379fc5a0c1529b2b0e8f07c6387493/9e6d8bbcf6a2e530-33/s500x750/831feabd82daf087b6f8358a32cde2060a961839.gif>
+<img src=https://media1.tenor.com/m/ioRd9SjWHd8AAAAd/infinite-the-jackal-unmasked.gif>
     <h5 align="center">   
          
 
