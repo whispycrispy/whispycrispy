@@ -4,7 +4,7 @@
   <h2 align="center">
 ☆Nickname₊ ⊹ Whisp/Null
     
-☆Pronouns₊ ⊹ any
+☆Pronouns₊ ⊹ he/they
 
 ☆age₊ ⊹27
 
