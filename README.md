@@ -36,11 +36,11 @@
    
 <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
 
-
+<h5 align="center">
+  <img src=https://64.media.tumblr.com/0b5c0cf257900d51871a907a44f10f93/c5c0f7512d6fcde4-7b/s1280x1920/30fba8ed1710a48a7394047f73cf039ae0161a43.gifv>
    <h3 align="center"> 　
-     <img src=https://media1.tenor.com/m/YTqgQJSRUvcAAAAC/reze-chainsaw-man.gif>
     
-<img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
+<img src=https://64.media.tumblr.com/421a645098907075c0e9a9761e09a991/8af98ad1072dd705-54/s540x810/75258eb35c2efdca548f66911adf87e6557ccecd.gif>
    <h2 align="center"> ⋆｡°✩Strict DNI ⋆｡°✩
 
 ☆Ped0ph1l1a, 1ncest, Z00ph1lli1a, Trump Supporters (politics) will be instantly blocked
@@ -68,11 +68,13 @@
 ☆ if say leave me be then leave me be
 
 ☆ fake systems and Endogenic systems
-<img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
+ <h5 align="center">
+  <img src=https://64.media.tumblr.com/b481af2bc9c1504ae3aa9741b16952a5/8d2c9962dc19045c-62/s1280x1920/565747b103ac2f3f3af00e8f3e1e1b6dd00d168f.gif>
+   
 
   
  <h5 align="center">
-  <img src=https://media1.tenor.com/m/G5-nKT48F4AAAAAd/overwatch-ramattra.gif>
+  <img src=https://64.media.tumblr.com/0b5c0cf257900d51871a907a44f10f93/c5c0f7512d6fcde4-7b/s1280x1920/30fba8ed1710a48a7394047f73cf039ae0161a43.gifv>
    
 <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
 
@@ -120,7 +122,7 @@
 
 
  <h5 align="center">
-<img src=https://64.media.tumblr.com/b5d5ea257b1b2ffcf0a236c920972802/d0f551d94eab24b0-19/s640x960/20289afc75549f8d76fbc83ee87acc0b612db140.gif>
+<img src=https://64.media.tumblr.com/c25d730726be6fa66b30b06ecb43a2d7/e0e0d18230224903-5c/s1280x1920/18e524230c1aab84c9cd31b40fdfdbbb56b6de97.gif>
     <h5 align="center">   
          
   <h5 align="center">  
