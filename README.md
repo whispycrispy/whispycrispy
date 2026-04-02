@@ -16,9 +16,8 @@
  <h4 align="center"> 
  <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
 
-  
 <p align="center">
-  <img src=https://media1.tenor.com/m/w5Q7kswTWMEAAAAC/infinite-the-jackal-sonic-forces.gif>
+  <img src=https://64.media.tumblr.com/13c934e1ef306b5d6834e098eb46056c/a965cc5551dfd58f-a3/s1280x1920/a331e10eeaa7a7bab72f7f86387f0ea3545ce5f5.gif>
 <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
  <h2 align="center">⋆｡°✩Interactions⋆｡°✩
 
@@ -37,10 +36,11 @@
 <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
 
 <h5 align="center">
-  <img src=https://64.media.tumblr.com/0b5c0cf257900d51871a907a44f10f93/c5c0f7512d6fcde4-7b/s1280x1920/30fba8ed1710a48a7394047f73cf039ae0161a43.gifv>
+  <img src=https://64.media.tumblr.com/ea0f43350ec7088f07a36ff1ad1c8531/c40ff7cc3c017959-d3/s540x810/38dffadce093dc4d5633b8f1f2687e05479e7da2.gif>
    <h3 align="center"> 　
-    
-<img src=https://64.media.tumblr.com/421a645098907075c0e9a9761e09a991/8af98ad1072dd705-54/s540x810/75258eb35c2efdca548f66911adf87e6557ccecd.gif>
+      <h4 align="center"> 
+ <img src=https://64.media.tumblr.com/4da49bdbe1e6fbd8d0d90a813c738720/2b8391d87a62eda0-d1/s1280x1920/b95c49613763c19219852e6b5186cee6caa52a7a.gifv>
+<img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
    <h2 align="center"> ⋆｡°✩Strict DNI ⋆｡°✩
 
 ☆Ped0ph1l1a, 1ncest, Z00ph1lli1a, Trump Supporters (politics) will be instantly blocked
@@ -69,12 +69,10 @@
 
 ☆ fake systems and Endogenic systems
  <h5 align="center">
-  <img src=https://64.media.tumblr.com/b481af2bc9c1504ae3aa9741b16952a5/8d2c9962dc19045c-62/s1280x1920/565747b103ac2f3f3af00e8f3e1e1b6dd00d168f.gif>
+  <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
    
-
-  
  <h5 align="center">
-  <img src=https://64.media.tumblr.com/0b5c0cf257900d51871a907a44f10f93/c5c0f7512d6fcde4-7b/s1280x1920/30fba8ed1710a48a7394047f73cf039ae0161a43.gifv>
+  <img src=https://64.media.tumblr.com/574f86afc80a51a2bd21e8befe3b8a78/fa8dff5a6704b85b-f6/s400x600/991aa1af5f7eb2f8912199511225b0d3fef303e2.gif>
    
 <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
 
@@ -118,11 +116,12 @@
    <img src=https://camo.githubusercontent.com/600cab64e513e49ed3c68935d9fad6a8921a64930faefc8aee18903acdf4cf9c/68747470733a2f2f707265766965772e726564642e69742f7237756a6f31643637306a66312e6a7065673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d33363733383164306561356232346536626662623231336535613330376633616630663335663037>]
 <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
 
-
+ <h5 align="center">
+<img src=https://media1.tenor.com/m/hf_K7nWrNl8AAAAC/caine-tadc.gif>
 
 
  <h5 align="center">
-<img src=https://64.media.tumblr.com/c25d730726be6fa66b30b06ecb43a2d7/e0e0d18230224903-5c/s1280x1920/18e524230c1aab84c9cd31b40fdfdbbb56b6de97.gif>
+<img src=https://media1.tenor.com/m/5q1YZldnvrgAAAAd/caine-caine-tadc.gif>
     <h5 align="center">   
          
   <h5 align="center">  
