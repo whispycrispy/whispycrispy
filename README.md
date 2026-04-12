@@ -9,7 +9,7 @@
 ☆age₊ ⊹27
 
 
-☆[current fronter](https://pluralkit.xyz/s/ucahsy)☆
+☆[current fronter](https://pluralkit.xyz/f/ucahsy)☆
 ☆[Strawpage](https://whisp.straw.page)☆
 ☆[artbook](https://whisp.atabook.org)☆
 <p align="center">
