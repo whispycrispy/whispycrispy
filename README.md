@@ -9,8 +9,7 @@
 ☆age₊ ⊹27
 
 
-☆[Galaxy system](https://pluralkit.xyz/s/ucahsy)☆
-☆[patreon](https://www.patreon.com/c/whispycrispy)☆
+☆[current fronter](https://pluralkit.xyz/s/ucahsy)☆
 ☆[Strawpage](https://whisp.straw.page)☆
 ☆[artbook](https://whisp.atabook.org)☆
 <p align="center">
