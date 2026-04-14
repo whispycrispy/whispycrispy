@@ -13,6 +13,11 @@
 ☆[Strawpage](https://whispexe.straw.page)☆
 ☆[artbook](https://whisp.atabook.org)☆
 <p align="center">
+  <p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31i2qwist7qxpr35kkdwnhyber5q&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31i2qwist7qxpr35kkdwnhyber5q&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false">
+  </a>
+</p>
  <h4 align="center"> 
  <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
 
