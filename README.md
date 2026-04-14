@@ -10,7 +10,7 @@
 
 
 ☆[current fronter](https://pluralkit.xyz/f/ucahsy)☆
-☆[Strawpage](https://whisp.straw.page)☆
+☆[Strawpage](https://whispexe.straw.page)☆
 ☆[artbook](https://whisp.atabook.org)☆
 <p align="center">
  <h4 align="center"> 
