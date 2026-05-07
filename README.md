@@ -22,7 +22,7 @@
  <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
 
 <p align="center">
-  <img src=https://64.media.tumblr.com/13c934e1ef306b5d6834e098eb46056c/a965cc5551dfd58f-a3/s1280x1920/a331e10eeaa7a7bab72f7f86387f0ea3545ce5f5.gif>
+  <img src=https://i.pinimg.com/736x/b2/1b/31/b21b312d56b5630d13488f01ef1d94e5.jpg>
 <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
  <h2 align="center">⋆｡°✩Interactions⋆｡°✩
 
@@ -41,10 +41,10 @@
 <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
 
 <h5 align="center">
-  <img src=https://64.media.tumblr.com/ea0f43350ec7088f07a36ff1ad1c8531/c40ff7cc3c017959-d3/s540x810/38dffadce093dc4d5633b8f1f2687e05479e7da2.gif>
+  <img src=https://i.pinimg.com/originals/99/5a/9c/995a9c241ad037d778f0feaa14f85b85.gif>
    <h3 align="center"> 　
       <h4 align="center"> 
- <img src=https://64.media.tumblr.com/4da49bdbe1e6fbd8d0d90a813c738720/2b8391d87a62eda0-d1/s1280x1920/b95c49613763c19219852e6b5186cee6caa52a7a.gifv>
+ <img src=https://i.pinimg.com/originals/66/e3/01/66e301fba5f877e5f34c860cf9b97468.gif>
 <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
    <h2 align="center"> ⋆｡°✩Strict DNI ⋆｡°✩
 
@@ -77,7 +77,7 @@
   <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
    
  <h5 align="center">
-  <img src=https://64.media.tumblr.com/574f86afc80a51a2bd21e8befe3b8a78/fa8dff5a6704b85b-f6/s400x600/991aa1af5f7eb2f8912199511225b0d3fef303e2.gif>
+  <img src=https://i.pinimg.com/originals/7b/4e/56/7b4e5668f1c76d192487350a05e1b273.gif>
    
 <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
 
@@ -122,15 +122,13 @@
 <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
 
  <h5 align="center">
-<img src=https://media1.tenor.com/m/hf_K7nWrNl8AAAAC/caine-tadc.gif>
+<img src=https://i.pinimg.com/originals/fc/9c/66/fc9c66f31524f13d042fdfb2580f0499.gif>
 
 
  <h5 align="center">
-<img src=https://media1.tenor.com/m/5q1YZldnvrgAAAAd/caine-caine-tadc.gif>
-    <h5 align="center">   
          
   
-  <img src=https://64.media.tumblr.com/0b5c0cf257900d51871a907a44f10f93/c5c0f7512d6fcde4-7b/s1280x1920/30fba8ed1710a48a7394047f73cf039ae0161a43.gifv>
+  <img src=https://i.pinimg.com/originals/a1/96/cb/a196cb1e0c77b39db9e4cb56d9c43dd6.gif>
 
 <!--
 **whispycrispy/whispycrispy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
