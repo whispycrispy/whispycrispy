@@ -4,14 +4,21 @@
   <h2 align="center">
 ☆Nickname₊ ⊹ Whisp/Null
     
+  <p align="center">
 ☆Pronouns₊ ⊹ he/they
-
+    
+<p align="center">
+  
 ☆age₊ ⊹27
-
+<p align="center">
+  <img src=https://media.tenor.com/EotNekdu2acAAAAi/typing-on-computer-mark-grayson.gif>
+ 
 
 ☆[current fronter](https://pluralkit.xyz/f/ucahsy)☆
 ☆[Strawpage](https://whispexe.straw.page)☆
 ☆[artbook](https://whisp.atabook.org)☆
+<p align="center">
+
 <p align="center">
   <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31i2qwist7qxpr35kkdwnhyber5q&redirect=true">
@@ -19,11 +26,11 @@
   </a>
 </p>
  <h4 align="center"> 
- <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
+ <img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
 
 <p align="center">
   <img src=https://i.pinimg.com/736x/b2/1b/31/b21b312d56b5630d13488f01ef1d94e5.jpg>
-<img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
+<img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
  <h2 align="center">⋆｡°✩Interactions⋆｡°✩
 
 ☆ I will not talk much (I'm mostly mute to new people )
@@ -38,14 +45,14 @@
 
 ☆Rate my ponies! I’m honestly curious what ppl think of them!!
    
-<img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
+<img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
 
 <h5 align="center">
   <img src=https://i.pinimg.com/originals/99/5a/9c/995a9c241ad037d778f0feaa14f85b85.gif>
    <h3 align="center"> 　
       <h4 align="center"> 
  <img src=https://i.pinimg.com/originals/66/e3/01/66e301fba5f877e5f34c860cf9b97468.gif>
-<img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
+<img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
    <h2 align="center"> ⋆｡°✩Strict DNI ⋆｡°✩
 
 ☆Ped0ph1l1a, 1ncest, Z00ph1lli1a, Trump Supporters (politics) will be instantly blocked
@@ -74,12 +81,12 @@
 
 ☆ fake systems and Endogenic systems
  <h5 align="center">
-  <img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
+  <img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
    
- <h5 align="center">
-  <img src=https://i.pinimg.com/originals/7b/4e/56/7b4e5668f1c76d192487350a05e1b273.gif>
+ <h3 align="center">
+  <img src=https://media1.tenor.com/m/pAA6TtaRdBsAAAAd/emperor-mark.gif>
    
-<img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
+<img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
 
  <h2 align="center"> Hay yah Dbd players!
    
@@ -112,14 +119,14 @@
 
  ✩ Dispatch
 
-<img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
+<img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
 
 
     
     
   <h3 align="center">
    <img src=https://camo.githubusercontent.com/600cab64e513e49ed3c68935d9fad6a8921a64930faefc8aee18903acdf4cf9c/68747470733a2f2f707265766965772e726564642e69742f7237756a6f31643637306a66312e6a7065673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d33363733383164306561356232346536626662623231336535613330376633616630663335663037>]
-<img src=https://64.media.tumblr.com/edff4cdff8b98b7181d48606fc5cfb66/1756e545dc4bf547-a7/s2048x3072/37ee2d14360503be2c57731e2602e8fbac3f5a02.gif>
+<img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
 
  <h5 align="center">
 <img src=https://i.pinimg.com/originals/fc/9c/66/fc9c66f31524f13d042fdfb2580f0499.gif>
@@ -128,8 +135,10 @@
  <h5 align="center">
          
   
-  <img src=https://i.pinimg.com/originals/a1/96/cb/a196cb1e0c77b39db9e4cb56d9c43dd6.gif>
-
+  <img src=https://media1.tenor.com/m/hXm3RSP7vW8AAAAC/mark-grayson-phone.gif>
+  
+<h5 align="center">
+  <img src=https://64.media.tumblr.com/0b5c0cf257900d51871a907a44f10f93/c5c0f7512d6fcde4-7b/s1280x1920/30fba8ed1710a48a7394047f73cf039ae0161a43.gifv>
 <!--
 **whispycrispy/whispycrispy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
