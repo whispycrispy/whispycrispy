@@ -2,7 +2,7 @@
 <h5 align="center">
   <img src=https://64.media.tumblr.com/0b5c0cf257900d51871a907a44f10f93/c5c0f7512d6fcde4-7b/s1280x1920/30fba8ed1710a48a7394047f73cf039ae0161a43.gifv>
   <h2 align="center">
-☆Nickname₊ ⊹ Whisp/Null
+☆Nickname₊ ⊹ Whisp/Null/NullSpace
     
   <p align="center">
 ☆Pronouns₊ ⊹ he/they
