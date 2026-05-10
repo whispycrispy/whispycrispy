@@ -69,7 +69,7 @@
 
 ☆ RP DNI I am not rping! and do not want to!! I will only do it with my closet friends.
 
-☆ When I say your making me uncomfy or give warnings pls back off, I want to feel comfortable playing Pt
+☆ When I say you are making me uncomfy or give warnings pls back off, I want to feel comfortable playing Pt
 
 ☆ unless I know you please leave me alone if I am drawing
 
@@ -103,21 +103,23 @@
 
 ✩ Mass effect
 
-✩ALiens 
+✩ ALiens 
 
-✩Predators
+✩ Predators
 
-✩overwatch
+✩ overwatch
 
-✩marvel rivals
+✩ marvel rivals
 
-✩cyberpunk
+✩ cyberpunk
 
 ✩ scifi movies ^^
     
 ✩ resident evil 
 
- ✩ Dispatch
+✩ Dispatch
+
+✩ Invicible
 
 <img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
 
