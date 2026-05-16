@@ -5,7 +5,7 @@
 ☆Nickname₊ ⊹ Whisp/Null/NullSpace
     
   <p align="center">
-☆Pronouns₊ ⊹ he/they
+☆Pronouns₊ ⊹ he/they/she
     
 <p align="center">
   
