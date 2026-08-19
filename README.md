@@ -11,7 +11,7 @@
   
 ☆age₊ ⊹28
 <p align="center">
-  <img src=https://media.tenor.com/EotNekdu2acAAAAi/typing-on-computer-mark-grayson.gif>
+  <img src=https://media1.tenor.com/m/RZ6ib_2gcD0AAAAd/loki-elbaf.gif>
  
 
 ☆[current fronter](https://pluralkit.xyz/f/ucahsy)☆
@@ -26,11 +26,11 @@
   </a>
 </p>
  <h4 align="center"> 
- <img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
+ <img src=https://64.media.tumblr.com/8cac0a6331c0f35f5cc74137b992673e/cfc654fafa5982a3-c5/s2048x3072/7da58af13d97da86ede5cadf4febe9ded37aa667.gifv>
 
 <p align="center">
-  <img src=https://i.pinimg.com/736x/b2/1b/31/b21b312d56b5630d13488f01ef1d94e5.jpg>
-<img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
+  <img src=https://i.pinimg.com/736x/ed/92/56/ed92561429bc2fdae6609224b383aa26.jpg>
+<img src=https://64.media.tumblr.com/3b0a6a21693981a0a2882c7e6f175a6d/046f55aff84d5b81-8e/s2048x3072/3d29123b237dc09ad055b9212eb39b85e0863d6c.pnj>
  <h2 align="center">⋆｡°✩Interactions⋆｡°✩
 
 ☆ I will not talk much (I'm mostly mute to new people )
@@ -45,14 +45,12 @@
 
 ☆Rate my ponies! I’m honestly curious what ppl think of them!!
    
-<img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
+<img src=https://64.media.tumblr.com/3b0a6a21693981a0a2882c7e6f175a6d/046f55aff84d5b81-8e/s2048x3072/3d29123b237dc09ad055b9212eb39b85e0863d6c.pnj>
 
 <h5 align="center">
-  <img src=https://i.pinimg.com/originals/99/5a/9c/995a9c241ad037d778f0feaa14f85b85.gif>
-   <h3 align="center"> 　
-      <h4 align="center"> 
- <img src=https://i.pinimg.com/originals/66/e3/01/66e301fba5f877e5f34c860cf9b97468.gif>
-<img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
+<img src=https://media1.tenor.com/m/E5Wkr02r4ysAAAAC/loki-one-piece.gif>
+        <h4 align="center"> 
+<img src=https://64.media.tumblr.com/3b0a6a21693981a0a2882c7e6f175a6d/046f55aff84d5b81-8e/s2048x3072/3d29123b237dc09ad055b9212eb39b85e0863d6c.pnj>
    <h2 align="center"> ⋆｡°✩Strict DNI ⋆｡°✩
 
 ☆Ped0ph1l1a, 1ncest, Z00ph1lli1a, Trump Supporters (politics) will be instantly blocked
@@ -81,12 +79,12 @@
 
 ☆ fake systems and Endogenic systems
  <h5 align="center">
-  <img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
+  <img src=https://64.media.tumblr.com/cbe5fd85351a556831b3c00b2c677222/3335549b2a9c905a-08/s2048x3072/5dd57baa046bc9cb200d882433609c51b8b65eb4.pnj>
    
  <h3 align="center">
-  <img src=https://media1.tenor.com/m/pAA6TtaRdBsAAAAd/emperor-mark.gif>
+  <img src=https://cdn.discordapp.com/attachments/1234302172297035870/1539503022076338196/95a09c9cffa414fe515ca3a935325a7a-Picsart-BackgroundRemover.jpg?ex=6a868d6b&is=6a853beb&hm=47c4fe8ed13785b236411ab76b8b36721d79a1262d292c69b1d582958cbe089c>
    
-<img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
+<img src=https://64.media.tumblr.com/cbe5fd85351a556831b3c00b2c677222/3335549b2a9c905a-08/s2048x3072/5dd57baa046bc9cb200d882433609c51b8b65eb4.pnj>
 
  <h2 align="center"> Hay yah Dbd players!
    
@@ -121,14 +119,14 @@
 
 ✩ Invicible
 
-<img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
+<img src=https://64.media.tumblr.com/cbe5fd85351a556831b3c00b2c677222/3335549b2a9c905a-08/s2048x3072/5dd57baa046bc9cb200d882433609c51b8b65eb4.pnj>
 
 
     
     
   <h3 align="center">
    <img src=https://camo.githubusercontent.com/600cab64e513e49ed3c68935d9fad6a8921a64930faefc8aee18903acdf4cf9c/68747470733a2f2f707265766965772e726564642e69742f7237756a6f31643637306a66312e6a7065673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d33363733383164306561356232346536626662623231336535613330376633616630663335663037>]
-<img src=https://64.media.tumblr.com/6b16df66db5fce258dfbf980b2f46aae/c5c0f7512d6fcde4-3c/s1280x1920/4b8c7240760520bdbe1de81290dbd00a1b65301d.gifv>
+<img src=https://64.media.tumblr.com/cbe5fd85351a556831b3c00b2c677222/3335549b2a9c905a-08/s2048x3072/5dd57baa046bc9cb200d882433609c51b8b65eb4.pnj>
 
  <h5 align="center">
 <img src=https://i.pinimg.com/originals/fc/9c/66/fc9c66f31524f13d042fdfb2580f0499.gif>
@@ -137,7 +135,7 @@
  <h5 align="center">
          
   
-  <img src=https://media1.tenor.com/m/hXm3RSP7vW8AAAAC/mark-grayson-phone.gif>
+  <img src=https://media1.tenor.com/m/vITKbNF-wWgAAAAC/one-piece-anime.gif>
   
 <h5 align="center">
   <img src=https://64.media.tumblr.com/0b5c0cf257900d51871a907a44f10f93/c5c0f7512d6fcde4-7b/s1280x1920/30fba8ed1710a48a7394047f73cf039ae0161a43.gifv>
