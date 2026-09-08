@@ -1,6 +1,6 @@
 
 <h5 align="center">
-  <img src=https://64.media.tumblr.com/0b5c0cf257900d51871a907a44f10f93/c5c0f7512d6fcde4-7b/s1280x1920/30fba8ed1710a48a7394047f73cf039ae0161a43.gifv>
+  <img src=https://64.media.tumblr.com/c749aae34db2f622bd7f9c58351ebcc1/28464d141a2152c3-df/s1280x1920/4ed7d734bbad9c25cb3892289be733c4a4fc2ad0.gifv>
   <h2 align="center">
 ☆Nickname₊ ⊹ Whisp/Null/NullSpace
     
@@ -11,7 +11,7 @@
   
 ☆age₊ ⊹28
 <p align="center">
-  <img src=https://media1.tenor.com/m/RZ6ib_2gcD0AAAAd/loki-elbaf.gif>
+  <img src=https://i.pinimg.com/originals/e5/4a/fa/e54afabd75adb33464e85f2687b43f87.gif>
  
 
 ☆[current fronter](https://pluralkit.xyz/f/ucahsy)☆
@@ -26,11 +26,11 @@
   </a>
 </p>
  <h4 align="center"> 
- <img src=https://64.media.tumblr.com/8cac0a6331c0f35f5cc74137b992673e/cfc654fafa5982a3-c5/s2048x3072/7da58af13d97da86ede5cadf4febe9ded37aa667.gifv>
+ <img src=https://64.media.tumblr.com/90ab5fc9e484033067f326ca2e58ec80/f3161ed0274636e9-1f/s1280x1920/f0f253d5f8cee8fe53e2774d0f3396a2568158d0.gifv>
 
 <p align="center">
-  <img src=https://i.pinimg.com/736x/ed/92/56/ed92561429bc2fdae6609224b383aa26.jpg>
-<img src=https://64.media.tumblr.com/3b0a6a21693981a0a2882c7e6f175a6d/046f55aff84d5b81-8e/s2048x3072/3d29123b237dc09ad055b9212eb39b85e0863d6c.pnj>
+  <img src=https://i.pinimg.com/originals/77/d4/e5/77d4e5d40fdaeb321eadd5cb855cb685.gif>
+<img src=https://64.media.tumblr.com/29c2300112f418abf48aed3eecfbca67/28464d141a2152c3-0d/s1280x1920/29012ceab8b0f29fe33ca5f1639397cabca0ed23.gifv>
  <h2 align="center">⋆｡°✩Interactions⋆｡°✩
 
 ☆ I will not talk much (I'm mostly mute to new people )
@@ -45,12 +45,12 @@
 
 ☆Rate my ponies! I’m honestly curious what ppl think of them!!
    
-<img src=https://64.media.tumblr.com/3b0a6a21693981a0a2882c7e6f175a6d/046f55aff84d5b81-8e/s2048x3072/3d29123b237dc09ad055b9212eb39b85e0863d6c.pnj>
+<img src=https://64.media.tumblr.com/bb615e3d6f6754f1c38749090c6be2c2/f3161ed0274636e9-5a/s1280x1920/233480c4eba964c87f7c991f026e40df9b1d6064.gifv>
 
 <h5 align="center">
-<img src=https://media1.tenor.com/m/E5Wkr02r4ysAAAAC/loki-one-piece.gif>
+<img src=https://i.pinimg.com/1200x/44/1b/f4/441bf43787774c4876f642121ce2c26e.jpg>
         <h4 align="center"> 
-<img src=https://64.media.tumblr.com/3b0a6a21693981a0a2882c7e6f175a6d/046f55aff84d5b81-8e/s2048x3072/3d29123b237dc09ad055b9212eb39b85e0863d6c.pnj>
+<img src=https://64.media.tumblr.com/a9bab0e3522d9e4b00d6cb3799f83d7f/28464d141a2152c3-8e/s1280x1920/33dc7163496f74ceca73ecca6e0d88fa16bedef4.gifv>
    <h2 align="center"> ⋆｡°✩Strict DNI ⋆｡°✩
 
 ☆Ped0ph1l1a, 1ncest, Z00ph1lli1a, Trump Supporters (politics) will be instantly blocked
@@ -79,12 +79,12 @@
 
 ☆ fake systems and Endogenic systems
  <h5 align="center">
-  <img src=https://64.media.tumblr.com/cbe5fd85351a556831b3c00b2c677222/3335549b2a9c905a-08/s2048x3072/5dd57baa046bc9cb200d882433609c51b8b65eb4.pnj>
+  <img src=https://64.media.tumblr.com/5fe644f9133e41d5219afe65c2b47f5c/f3161ed0274636e9-19/s1280x1920/f3eeb9ab51d1dd74b4ed5175c59a1132c90b0cd7.gifv>
    
  <h3 align="center">
-  <img src=https://cdn.discordapp.com/attachments/1234302172297035870/1539503022076338196/95a09c9cffa414fe515ca3a935325a7a-Picsart-BackgroundRemover.jpg?ex=6a868d6b&is=6a853beb&hm=47c4fe8ed13785b236411ab76b8b36721d79a1262d292c69b1d582958cbe089c>
+  <img src=https://i.pinimg.com/originals/74/a2/c1/74a2c131ffced1b40dc37e433e5cb764.gif>
    
-<img src=https://64.media.tumblr.com/cbe5fd85351a556831b3c00b2c677222/3335549b2a9c905a-08/s2048x3072/5dd57baa046bc9cb200d882433609c51b8b65eb4.pnj>
+<img src=https://64.media.tumblr.com/4ca1b862e3317b01f982f805ff545323/f3161ed0274636e9-9f/s1280x1920/1590c7aca2d417ac5783122e2f8910d9e7962767.gifv>
 
  <h2 align="center"> Hay yah Dbd players!
    
@@ -109,7 +109,7 @@
 
 ✩ marvel rivals
 
-✩ cyberpunk
+✩ cyberpunk edgerunner
 
 ✩ scifi movies ^^
     
@@ -119,26 +119,25 @@
 
 ✩ Invicible
 
-<img src=https://64.media.tumblr.com/cbe5fd85351a556831b3c00b2c677222/3335549b2a9c905a-08/s2048x3072/5dd57baa046bc9cb200d882433609c51b8b65eb4.pnj>
+✩ cyberpunk 2077
+
+<img src=https://64.media.tumblr.com/c1b148aaf06a820afc5591fc57504462/28464d141a2152c3-58/s1280x1920/2747c7d27bea7e85ea583fe933804f4f9a48a0fb.gifv>
 
 
     
     
   <h3 align="center">
    <img src=https://camo.githubusercontent.com/600cab64e513e49ed3c68935d9fad6a8921a64930faefc8aee18903acdf4cf9c/68747470733a2f2f707265766965772e726564642e69742f7237756a6f31643637306a66312e6a7065673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d33363733383164306561356232346536626662623231336535613330376633616630663335663037>]
-<img src=https://64.media.tumblr.com/cbe5fd85351a556831b3c00b2c677222/3335549b2a9c905a-08/s2048x3072/5dd57baa046bc9cb200d882433609c51b8b65eb4.pnj>
 
  <h5 align="center">
-<img src=https://i.pinimg.com/originals/fc/9c/66/fc9c66f31524f13d042fdfb2580f0499.gif>
+<img src=https://64.media.tumblr.com/bb54f140a04a954aa26fa425a382ff33/28464d141a2152c3-21/s1280x1920/b38fad6af3924c3386e39464fb79784830d9e074.gifv>
 
 
  <h5 align="center">
-         
-  
-  <img src=https://media1.tenor.com/m/vITKbNF-wWgAAAAC/one-piece-anime.gif>
+  <img src=https://i.pinimg.com/originals/c0/43/82/c0438244314f1fb58a3953e12de48b69.gif>
   
 <h5 align="center">
-  <img src=https://64.media.tumblr.com/0b5c0cf257900d51871a907a44f10f93/c5c0f7512d6fcde4-7b/s1280x1920/30fba8ed1710a48a7394047f73cf039ae0161a43.gifv>
+  <img src=https://64.media.tumblr.com/64c6ce54ee46a899056bcbe467679243/28464d141a2152c3-fc/s1280x1920/8372d17b1754cc701108164dc42fcd1efd730df7.gifv>
 <!--
 **whispycrispy/whispycrispy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
