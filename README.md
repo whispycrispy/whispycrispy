@@ -11,7 +11,7 @@
   
 ☆age₊ ⊹28
 <p align="center">
-  <img src=https://i.pinimg.com/originals/e5/4a/fa/e54afabd75adb33464e85f2687b43f87.gif>
+  <img src=https://cdn.discordapp.com/attachments/1346296196376957030/1548865402766098482/Untitled253_20260913201626.png?ex=6aa89cd0&is=6aa74b50&hm=1028a2c6ad5df3b913ac494f9024eb834d56c98277b3602ca6372954323b37f9&>
  
 
 ☆[current fronter](https://pluralkit.xyz/f/ucahsy)☆
@@ -26,7 +26,7 @@
   </a>
 </p>
  <h4 align="center"> 
- <img src=https://64.media.tumblr.com/90ab5fc9e484033067f326ca2e58ec80/f3161ed0274636e9-1f/s1280x1920/f0f253d5f8cee8fe53e2774d0f3396a2568158d0.gifv>
+ <img src=https://64.media.tumblr.com/29c2300112f418abf48aed3eecfbca67/28464d141a2152c3-0d/s1280x1920/29012ceab8b0f29fe33ca5f1639397cabca0ed23.gifv>
 
 <p align="center">
   <img src=https://i.pinimg.com/originals/77/d4/e5/77d4e5d40fdaeb321eadd5cb855cb685.gif>
@@ -45,10 +45,10 @@
 
 ☆Rate my ponies! I’m honestly curious what ppl think of them!!
    
-<img src=https://64.media.tumblr.com/bb615e3d6f6754f1c38749090c6be2c2/f3161ed0274636e9-5a/s1280x1920/233480c4eba964c87f7c991f026e40df9b1d6064.gifv>
+<img src=https://64.media.tumblr.com/29c2300112f418abf48aed3eecfbca67/28464d141a2152c3-0d/s1280x1920/29012ceab8b0f29fe33ca5f1639397cabca0ed23.gifv>
 
 <h5 align="center">
-<img src=https://i.pinimg.com/1200x/44/1b/f4/441bf43787774c4876f642121ce2c26e.jpg>
+<img src=https://i.pinimg.com/originals/e5/4a/fa/e54afabd75adb33464e85f2687b43f87.gif>
         <h4 align="center"> 
 <img src=https://64.media.tumblr.com/a9bab0e3522d9e4b00d6cb3799f83d7f/28464d141a2152c3-8e/s1280x1920/33dc7163496f74ceca73ecca6e0d88fa16bedef4.gifv>
    <h2 align="center"> ⋆｡°✩Strict DNI ⋆｡°✩
