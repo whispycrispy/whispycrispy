@@ -11,7 +11,7 @@
   
 ☆age₊ ⊹28
 <p align="center">
-  <img src=https://cdn.discordapp.com/attachments/1346296196376957030/1548865402766098482/Untitled253_20260913201626.png?ex=6aa89cd0&is=6aa74b50&hm=1028a2c6ad5df3b913ac494f9024eb834d56c98277b3602ca6372954323b37f9&>
+  <img src=https://64.media.tumblr.com/2fcf3b7f4336cd99af2fa4fbe92fa2db/eb7b91365d69af12-bd/s2048x3072/a7e345684e695cc5c35a8d7c6fb587d15a7e7a1a.pnj>
  
 
 ☆[current fronter](https://pluralkit.xyz/f/ucahsy)☆
