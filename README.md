@@ -20,10 +20,9 @@
 <p align="center">
 
 
-  <p align="center">
-    <p align="center">
+<p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31i2qwist7qxpr35kkdwnhyber5q&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31i2qwist7qxpr35kkdwnhyber5q&cover_image=true&theme=default&show_offline=false&background_color=8abdff&interchange=false&profanity=false&hide_remaster=false&bar_color=f953eb&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31i2qwist7qxpr35kkdwnhyber5q&cover_image=true&theme=default&show_offline=false&background_color=0667b1&interchange=false&profanity=false&hide_remaster=false&bar_color=ff00dd">
   </a>
 </p>
  <h4 align="center"> 
