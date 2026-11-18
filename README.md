@@ -88,11 +88,11 @@
 
  <h2 align="center"> Hay yah Dbd players!
    
- <h2 align="center"> I'm a Xenomorph as well as wesker killer main ! While for survivor I'm a Yui Kimura or Leon kennedy/Rebecca Chambers main
+ <h2 align="center"> I'm a Xenomorph as well as wesker killer main ! While for survivor I'm a Yui Kimura or Leon kennedy main
    
   In overwatch and rivals 
   I'm  Reaper,Emre,Dva,Ana main
-  in rival i'm a emma,Moonknight,Elsa,Gambit main ^^
+  in rival i'm a emma,Moonknight,Elsa,whitefox main ^^
    
 <h2 align="center"> ⋆｡°✩fav things⋆｡°✩
 
@@ -127,7 +127,7 @@
     
     
   <h3 align="center">
-   <img src=https://camo.githubusercontent.com/600cab64e513e49ed3c68935d9fad6a8921a64930faefc8aee18903acdf4cf9c/68747470733a2f2f707265766965772e726564642e69742f7237756a6f31643637306a66312e6a7065673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d33363733383164306561356232346536626662623231336535613330376633616630663335663037>]
+
 
  <h5 align="center">
 <img src=https://64.media.tumblr.com/bb54f140a04a954aa26fa425a382ff33/28464d141a2152c3-21/s1280x1920/b38fad6af3924c3386e39464fb79784830d9e074.gifv>
